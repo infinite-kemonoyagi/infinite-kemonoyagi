@@ -39,7 +39,7 @@ Tengo 15 años, con 5 de experiencia en programacion principalmente en el desarr
 ---------------------------------------------------------------------
 
 > “A veces pienso con el cerebro... pero algunas veces siento que escucho con las orejas... no sé por qué será.”  
-> — Infiyagi, **540 A.C.** - **2025 D. C.**
+> — IKY (Infinite KemonoYagi), **540 A.C.** - **2025 D. C.**
 
 ---------------------------------------------------------------------
 
